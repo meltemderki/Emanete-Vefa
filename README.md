@@ -8,4 +8,4 @@ Başlangıç Haftası
 🍽️ Karbonhidratsız akşam yemeği (19.00)
 🚶 Akşam yürüyüşü (20.30-21.30)
 💧 8 bardak su hedefi
-İlerleme
+İlerleme#
